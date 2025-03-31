@@ -10,4 +10,3 @@ Santa Maria - UFSM - CT sala | 25/03/2025
 - alaga fácil.
 ## objetivos profissionais
 - poder trabalhar remotamente e ajudar em grandes projetos realmente importantes para a sociedade.
-- Ciclismo.
